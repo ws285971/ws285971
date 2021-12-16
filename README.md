@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...man
 - 🌱 I’m currently learning ...because I’m single 
 - 💞️ I’m looking to collaborate on ...in a serious woman 
-- 📫 How to reach me ...
+- 📫 How to reach me ... ava26751@gmail.com
 
 <!---
 ws285971/ws285971 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
